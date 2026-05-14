@@ -1,9 +1,10 @@
 # 💫 Hi 👋, I'm Shovan Mondal
-**A passionate Programmer  || 2nd year collage syudent**
+**A passionate Programmer  || 2nd year BCA Studentt**
 
 Email Me 👉 ✉️ **shovanmmondalmm@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 - 🌱 **I’m currently learning:** DBMS, operating system & Software engineering
+- 🔭 I’m currently working on: Several projects
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** shovanmmondalmm@gmail.com
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
