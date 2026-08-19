@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Shovan Mondal
-**A passionate Programmer  || 2nd year BCA Studentt**
+**A passionate Programmer  || 3rd year BCA Studentt**
 
 Email Me 👉 ✉️ **shovanmmondalmm@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
